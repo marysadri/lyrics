@@ -18,3 +18,4 @@ People who inspired me
 11. carlos castaneda
 12. Deepak Chopra
 13. Michael Jackson
+14. Anodea Judith
